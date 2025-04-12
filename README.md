@@ -1,5 +1,8 @@
 <div align="center">
-  
+
+I only use this gh whenever temporarily banned on pt so **follow one of these** instead!!! theyre both my mains, i often switch between 'em ^_^
+[github.com/**scaraddicted**](https://github.com/scaraddicted)⠀⠀*or*⠀⠀[github.com/**tillourstarsfade**](https://github.com/tillourstarsfade)
+
 [ཐི♡ཋྀ](https://genshin-impact.fandom.com/wiki/Wanderer)
 
 　　‎
